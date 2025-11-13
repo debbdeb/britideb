@@ -114,7 +114,7 @@ Data Science · Data Storytelling · Ontology Engineering · Geospatial & XR Tec
 - ✉️ **Email:** [britideb@gmail.com](mailto:britideb@gmail.com)  
 - 🌍 **Website:** [narrateastory.com](https://narrateastory.com)  
 - 💼 **LinkedIn:** [linkedin.com/in/britideb](https://www.linkedin.com/in/britideb/)
-- 🧠 **Google Scholar:** [View Profile](https://scholar.google.com/)
+- 🧠 **Google Scholar:** [View Profile](https://scholar.google.com/citations?user=TBKDVk8AAAAJ&hl=en)
 
 ---
 
